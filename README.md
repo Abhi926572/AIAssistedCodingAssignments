@@ -4,3 +4,4 @@ https://github.com/Abhi926572/AIAssistedCodingAssignments/blob/main/Assignment%2
 https://github.com/Abhi926572/AIAssistedCodingAssignments/blob/main/AIAC%20ASSIGNMENT%203%202303A51656.docx
 https://github.com/Abhi926572/AIAssistedCodingAssignments/blob/main/AIAC%20ASSIGNMENT%204(2303A51656).docx
 https://github.com/Abhi926572/AIAssistedCodingAssignments/blob/main/AI%20Assistant%20Coding%20Assignment%205.3(2303A51656).docx
+https://github.com/Abhi926572/AIAssistedCodingAssignments/blob/main/AIAC%20Week%206.1%20Assignment(2303A51656).docx
